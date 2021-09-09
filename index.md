@@ -1,5 +1,7 @@
 ## The Uncensored Picture of Dorian Gray
 [回到主页](https://boheme130.github.io/Fiction.git.io/)
+
+![avatar](https://static.ffx.io/images/$zoom_1%2C$multiply_0.3902%2C$ratio_1.777778%2C$width_1968%2C$x_21%2C$y_21/t_crop_custom/q_86%2Cf_auto/83987019def37c57c89df41009f85e51b5a01920)
 <br>
 <br>
 
